@@ -6,6 +6,10 @@ Enjoy reading, learning, traveling, and good food 🌮
 
 Product person having a mid-life crisis, wanting to do more 🙏
 
+--
+
+More about me:
+
 🔭 I’m currently working on new business and personal ideas
 
 🌱 I’m currently learning how to leverage AI and Co-pilots to code
