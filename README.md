@@ -1,4 +1,4 @@
-## Bonjour! Hi there 👋
+## Bonjour! 👋
 
 Jonathan, 🇫🇷 living in 🇲🇽.
 
